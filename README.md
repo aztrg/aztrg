@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @aztrg
-- 👀 I’m interested in reading books,watching movies,playing sports and so on
+- 👀 I’m interested in reading books,watching movies,playing sports and animation
 - 🌱 I’m currently learning python
-- 💞️ I’m looking for some friends
+- 💞️ I’m looking for some friends(maybe)
 - 📫 You can contact me through me27303@outlook.com
 
 <!---
